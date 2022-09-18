@@ -6,12 +6,12 @@ Knowledge Is Power!
 →The Team / their best work going across the screen (portfolio s)
 ★•Anouncements
 →Featured creators
+★•Learn
 ★•Resources
 →Recommended Channels
 →Ideas
 →Assets (will have money catagories)
 →Links
-★•Learn
 
 [ Footer ]
 ★•Socials
