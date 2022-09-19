@@ -12,6 +12,7 @@ Knowledge Is Power!
 →Ideas
 →Assets (will have money catagories)
 →Links
+★•Services
 
 [ Footer ]
 ★•Socials
