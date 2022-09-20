@@ -10,7 +10,7 @@ Helping YouTubers Grow!
 ★•Resources
 →Recommended Channels
 →Ideas
-→Assets (will have money catagories)
+→Assets (will have many catagories)
 →Links
 ★•Services
 
