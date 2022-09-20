@@ -1,5 +1,5 @@
 # creatorfix.org
-Knowledge Is Power!
+Helping YouTubers Grow!
 
 [ Main ]
 ★•Home - logo
